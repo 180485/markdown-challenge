@@ -34,7 +34,7 @@
  * I loved the dress that I bought at a flea market. It fit perfectly, and the skirt was a swirl of intricate pleats. I wore it confidently to an evening party and glowed and suddenly there is another woman wear exacly the same dress that i wear 
 
 
-
+<< previous || Ismi andhykawati || next >>
 
 
 
